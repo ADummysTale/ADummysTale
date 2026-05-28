@@ -4,7 +4,7 @@
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ea6d4408-15fa-49cf-bf9a-093adff4dade" /> subsys filed with nusians, dominians and guesans alike <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/4d03bcf7-d925-4f23-86f2-3f35ae346d52" />
  !\
  
-<img width="22" height="21" alt="image" src="https://github.com/user-attachments/assets/e1519f3f-5234-4e42-9e27-901c273fcc90" /> don't make any insensitive comments <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/dee645cd-b6ff-4461-a333-0473de4709a4" /> ex : insensitive war jokes . jokes about our traumas in source . jokes about us being "killing machines" . anything to do with the fact we as a subsys are not in war with eachother and get along despite our source countries doing so <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/d236b4f2-a27b-484e-9a1b-838330defc78" /> we've had to clarify TOO many times. stop it. we are at peace.\
+<img width="22" height="21" alt="image" src="https://github.com/user-attachments/assets/e1519f3f-5234-4e42-9e27-901c273fcc90" /> don't make any insensitive comments <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/dee645cd-b6ff-4461-a333-0473de4709a4" /> ex : insensitive war jokes . jokes about our traumas in source . jokes about us being "killing machines" . anything to do with the fact we as a subsys are not in war with eachother and get along despite our source countries doing so <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/d236b4f2-a27b-484e-9a1b-838330defc78" /> we've had to clarify TOO many times. stop it. we are at peace.
 
 we can come from . .
 > dummies vs noobs\
@@ -18,33 +18,33 @@ Main fronters info !!
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/94a6d772-0380-4c32-a3ee-840f19deefc1" /> Achilles ︶ she . they ︶ male 2 female ︶ pansexual ︶ single\
   DONT make any "womanphobia" jokes unless we're close\
   talks a lot ︶ socialable ︶ public pref whispers fine but doesnt stay in them for long\
-  int w care !!\
+  int w care !!
 
   <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/98351729-d184-4188-aaa8-f6b9ce0a8cdb" /> Hotel Tango ︶ he . him ︶ single\
   my sexuality is private and i dont speak on it\
   yapper ︶ somewhat social? ︶ whispers or public\
   call me HT or Tango! (if Hotel Tango is too long / awkward)\
-  dniuclose pref , doesnt really mind just focuses on his insys job while fronting\
+  dniuclose pref , doesnt really mind just focuses on his insys job while fronting
 
  ![](https://gifcity.carrd.co/assets/images/gallery310/a1ecfcb5.gif?v=3fc8f5cd) Tyr ︶ he . they ︶ aroace ︶ single\
   doesnt like staying in one place for too long, may be active on ponytown if not afk!\
   pretty quiet around strangers ︶ anti-social tendencies ︶ prefers whispers doesnt speak much in public\
-  interact with extreme caution & care\
+  interact with extreme caution & care
 
   <img width="31" height="24" alt="image" src="https://github.com/user-attachments/assets/a025840a-e905-4130-a375-1c6268823f28" /> Cloaker ︶ he . she ︶ genderfluid IDIOT ︶ cupioromantic i think? ︶ taken iirc\
   you're talking a whole lotta shit for someone within dropkicking range!\
   yaps a lot ︶ social ︶ whispers or public\
-  int freely just dont be dumb ok?\
+  int freely just dont be dumb ok?
 
   <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/1f03623b-73e7-409f-9839-33744de65ed5" /> Tempest ︶ he . they ︶ genderfluid so lenient with his pronouns ︶ he doesnt know his sexuality ︶ single\
   he is really close withhis brother calar and talks about him alot.. shiver\
   mild yapper ︶ kinda social ︶ whispers or party chat pref but doesnt mind public atall\
-  int freely but iwc for the entirety of september 9th\
+  int freely but iwc for the entirety of september 9th
 
   <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ddb2923b-5375-43f0-9cc6-7bc8b87ebc5f" /> London Prime ︶ he . him ︶ aroace ︶ single\
   Minos Prime...? What art thee on about?\
   talks a lot ︶ VERY formal unless trusted ︶ public pref but doesnt mind ︶ struggles socialising\
-  int freely\
+  int freely
 
   <img width="285" height="17" alt="image" src="https://github.com/user-attachments/assets/45da8d36-0f45-4d9b-a1e1-d11e51f91f71" />\
   Collective info (subsys wise)
