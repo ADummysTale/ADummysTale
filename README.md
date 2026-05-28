@@ -50,6 +50,7 @@ Main fronters info !!
   Collective info (subsys wise)
 
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/568c3069-7e0a-460f-81ad-aa9a6f0b7a63" />\
+[cloaker's rentry](https://rentry.co/cloakinspeedz)
 literally none of us have FUCKIGN RENTRYS. or whatever they prefer i dont care IM SO TIRED GUYS WE NEED TO LOCK IN\
 
 btw just because you see us wearing a skin with our git (a dvn/hellmet/etc skin then) does NOT mean any of us are fronting!! feel free to ask! we dont bite
